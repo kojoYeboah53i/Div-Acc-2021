@@ -3,4 +3,4 @@ whatsapp numbers
 
 
 ## Akintola Rahmat
-- 050XXXXX90
+- 0505926590
